@@ -1,4 +1,4 @@
-### single mother 翻譯
+### single mother 歌詞翻譯
 
 single mother 是一首描述小孩被單親媽媽扶養成人之後<br>
 回首感謝母親的愛與付出的一首歌<br>
