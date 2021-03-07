@@ -2,7 +2,7 @@
 ### 歌詞翻譯<br>
 [Home](https://lyrics-meme-translation.github.io/Japanese-lyrics-translation/?fbclid=IwAR27WQeb84aZYoBfD29tQFZKUTggK7frbh1u-2Tt38RitVi5EeP9Ok_ZKw4)
 
-<img src="https://github.com/lyrics-meme-translation/single-mother/blob/main/20210307_172137.jpg" width="200" height="200">
+<img src="https://github.com/lyrics-meme-translation/single-mother/blob/main/20210307_172137.jpg" width="500" height="500">
 
 single mother<br>
 是一首描述小孩被單親媽媽扶養成人之後<br>
