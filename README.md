@@ -2,6 +2,8 @@
 ### 歌詞翻譯<br>
 [Home](https://lyrics-meme-translation.github.io/Japanese-lyrics-translation/?fbclid=IwAR27WQeb84aZYoBfD29tQFZKUTggK7frbh1u-2Tt38RitVi5EeP9Ok_ZKw4)
 
+<img src="Matcha Latte https://imgur.com/gallery/pLrJizN">
+
 single mother<br>
 是一首描述小孩被單親媽媽扶養成人之後<br>
 回首感謝母親的愛與付出的一首歌<br>
