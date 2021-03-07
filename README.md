@@ -1,6 +1,6 @@
 ## single mother<br>
 ### 歌詞翻譯<br>
-[Home](https://lyrics-meme-translation.github.io/Japanese-lyrics-translation/?fbclid=IwAR27WQeb84aZYoBfD29tQFZKUTggK7frbh1u-2Tt38RitVi5EeP9Ok_ZKw4)
+[Home](https://lyrics-meme-translation.github.io/sakura-no-tsugiki/)
 
 <img src="https://raw.githubusercontent.com/lyrics-meme-translation/single-mother/main/20210307_172137.jpg" width="375" height="500">
 
