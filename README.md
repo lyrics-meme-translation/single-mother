@@ -1,6 +1,6 @@
 ## single mother<br>
 ### 歌詞翻譯<br>
-[Home](https://lyrics-meme-translation.github.io/sakura-no-tsugiki/)
+[桜の接ぎ木のもとへ（回到接木之櫻）](https://lyrics-meme-translation.github.io/sakura-no-tsugiki/)
 
 <img src="https://raw.githubusercontent.com/lyrics-meme-translation/single-mother/main/20210307_172137.jpg" width="375" height="500">
 
